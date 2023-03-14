@@ -1,5 +1,5 @@
 # 💫 About Me:
-Born To Code......
+Make it Fast, Make it Right, Make it work....
 
 
 ## 🌐 Socials:
